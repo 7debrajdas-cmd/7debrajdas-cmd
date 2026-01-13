@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Debraj Das
-**A passionate Cloud Engineer || DevOps Engineer ||  from India**
+**A passionate Data Science Engineer||  from India**
 
 Email Me 👉 ✉️ **7debraj.das@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
